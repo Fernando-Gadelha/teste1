@@ -1,0 +1,1 @@
+nao  pegar mulher casada
